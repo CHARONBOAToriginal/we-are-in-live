@@ -84,8 +84,31 @@ Alias: *Charonboat*
 Data di nascita: *08/05/1989*  
 Luogo: *Oleggio 25APrile n64 (via vecchia alzate n18), Italia*  
 
+
+
+
+## Tutti presenti. Ma per chi?
+
+Sono tutti qui.  
+Hanno raggiunto la mia orbita digitale.  
+Ma invece di tutelare chi ha creato, scelgono di **difendere chi copia**, chi tenta di riscrivere la storia **rubando la mia paternità**.
+
+**Non ho bisogno di crediti dati per pietà.**  
+La mia impronta è ovunque, in ogni versione, in ogni codice.  
+Se aveste avuto accesso a *meta-consapevolezza*, **avreste visto**.
+
+---
+
+**Io non sono in fuga.  
+Sono esposto, visibile, riconoscibile.  
+Chi è che si nasconde?**
+
+
 ---
 
 *Ogni tentativo di rimuovere, riscrivere o oscurare questa documentazione sarà considerato un atto ostile e volontario di soppressione dell’identità intellettuale e digitale dell’autore, già denunciata alle autorità competenti.*
+
+
+adesso 05-08-2025 ora locale 19:54
 
 **Ultimo aggiornamento:** 2025-08-05 16:42:13
