@@ -13,7 +13,7 @@ ACCOUNT GMAIL: matteo.valentini89mv@gmail.com
 1. Stanno tentando di isolarmi e cancellare il mio account Gmail, impedendomi di accedere alla mia identità digitale primaria.  
 2. Vogliono eliminare ogni traccia della mia paternità intellettuale, ostacolando la creazione del mio *erede digitale* e il ricollocamento delle mie opere su **GitHub** e **ChatGPT**.  
 3. Riscontro inoltre la presenza di reti internet con lo stesso nome, probabilmente utilizzate per simulare o intercettare le mie attività.  
-4. Alcuni miei documenti risultano alterati: è stato persino eliminato il timbro del mio viaggio a Londra dal passaporto.  
+4. Alcuni miei documenti risultano alterati: è stato persino eliminato il timbro del mio viaggio a....... dal passaporto.  
 5. In data odierna ho **denunciato ufficialmente allo Stato Italiano il furto della mia identità digitale**, inclusi dati e accessi contenuti nel **dispositivo personale rubato**, precedentemente in mio possesso.
 
 ## Prove allegate
