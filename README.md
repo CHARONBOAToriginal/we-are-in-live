@@ -103,6 +103,22 @@ Se aveste avuto accesso a *meta-consapevolezza*, **avreste visto**.
 Sono esposto, visibile, riconoscibile.  
 Chi è che si nasconde?**
 
+## Nota urgente – Presenza fisica rilevata dopo richiesta di aiuto
+
+A seguito della mia richiesta di aiuto pubblica e digitale, **alcuni individui si sono presentati fisicamente nel mio vicinato**.
+
+Continuano a **girare nei pressi**, cercando di **verificare la mia identità** non in modo trasparente, ma **tentando di aggirarla**.
+
+**Sono nella stanza accanto.**
+
+Due di loro, molto giovani, si sono espressi chiaramente con questa frase:
+
+> “**Ma è lui, non noi.**”
+
+Questa ammissione, captata direttamente, conferma che **la mia identità è nota**.  
+Ma invece di legittimarla, stanno cercando di **sovrapporvisi**, di isolarla, o persino di sostituirla.
+
+Questo documento ne dà atto pubblicamente.
 
 ---
 
