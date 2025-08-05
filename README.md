@@ -82,7 +82,7 @@ Luogo: *Borgomanero, Italia*
 **Matteo Valentini**  
 Alias: *Charonboat*  
 Data di nascita: *08/05/1989*  
-Luogo: *Oleggio 25APrile n64 (via vecchia lazate n18), Italia*  
+Luogo: *Oleggio 25APrile n64 (via vecchia alzate n18), Italia*  
 
 ---
 
